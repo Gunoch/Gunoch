@@ -37,7 +37,7 @@ Atualmente leciono em escola particular e desenvolvo projetos educacionais inter
 
 ## 📫 Como me encontrar  
 - Email: **gustavo.nolasco1000@gmail.com**  
-- LinkedIn: [linkedin.com/in/gustavoprofile]([https://www.linkedin.com/in/gustavo-nolasco-chaves/])  
+- LinkedIn: **https://www.linkedin.com/in/gustavo-nolasco-chaves/** 
 
 ---
 
